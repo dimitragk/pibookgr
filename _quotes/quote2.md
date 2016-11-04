@@ -1,0 +1,1 @@
+'Computers are incredibly fast, accurate and stupid; humans are increadibly slow, inaccurate and brilliant; together they are powerful beyond imagination' , Albert Einstein

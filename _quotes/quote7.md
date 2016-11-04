@@ -1,0 +1,1 @@
+' the pencil and the computer are, if left to their own devices, equally dumb and only as good as the person driving them.' , Norman Foster

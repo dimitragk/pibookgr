@@ -1,0 +1,1 @@
+'You can not have great software without a great team, and most software teams behave like dysfunctonal families' , Jim McCarthy

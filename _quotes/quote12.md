@@ -1,0 +1,1 @@
+'Computing is not about computers anymore. It is about living. ' , Nicolas Negroponte

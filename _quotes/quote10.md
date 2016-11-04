@@ -1,0 +1,1 @@
+'Software comes from heaven when you have good hardware' , Ken Olsen

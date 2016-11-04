@@ -1,0 +1,1 @@
+'Understanding the needs of a business is the starting point for any project' , John Williams

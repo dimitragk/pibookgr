@@ -1,0 +1,1 @@
+'Technology must be like oxygen; obiquitous, necessary and invisible' , Chris Lehman
